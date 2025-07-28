@@ -11,7 +11,7 @@ ok so hey im raison detre, other why as rabies, worm, winner, and formerly gaste
 #3 - so going onto friends and relationships snuisiuhsuhsihissh ok so im literally like graysexual dudbutttt hehehehshsuih i have a girlfriend so hheheyyah,, friends idm, js please remember me bro it truly (breaks my heart) when yalls forget me lwk but im always open for interactions and new friens because i love yappinf so much pslspslspslsl ok
 uhm what next???
 
-#4 - i can put my dnis here i guess, the moreover "unedited" version is on my straw page but uhmmm lets get on there : HEAVY DNI ,, MAPs, pdf files (yk) and like common dnis. i dislike getting involved with people older than 18+ and... uhm... hyeah i think thats it i dont rlly habe much to day
+#4 - i can put my dnis here i guess, the moreover "unedited" version is on my straw page but uhmmm lets get on there : HEAVY DNI ,, MAPs, pdf files (yk) and like common dnis. i dislike getting involved with people older than 18+ and... uhm...d-d-d-darkshippers or proshippers........... plsanwyay hyeah i think thats it i dont rlly habe much to day
 
 #5 - i dont get triggered by many things or anything, but i do wanna put out a heads up that i do have ptsd from bees ;( thats about it lmao
 
