@@ -16,3 +16,5 @@ uhm what next???
 #5 - i dont get triggered by many things or anything, but i do wanna put out a heads up that i do have ptsd from bees ;( thats about it lmao
 
 #6 - i may habe delayed responses in all websites, email, strawpage, atabook, discord, pony town, roblox notifs, rlly anything. pls try not to get mad at me for it, i do take long to reply and/or i get very busy.
+
+((NOT DONE))
