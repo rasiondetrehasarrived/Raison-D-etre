@@ -1,7 +1,7 @@
 # Raison-D-etre
  ok so like hi i am rasion that is so onvious (get a load of this guy.)
 
-## yh, welcome to my little intro or smt
+holy cornball
 
 #1 - uhmmmmmmmmmm ok so rhis is js like things about me so yalls know what to call me or wtv
 ok so hey im raison detre, other why as rabies, worm, winner, and formerly gaster and muffins/muiffins. please do not call me any teaser names or the listed former names, i dont appreciate the gesture. i love being called the first listed names, and then my kin names like jim and two time (ill list the rest later) i genuinely have a lot of names sadly so like js choose one and stick to it ig,,
